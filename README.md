@@ -1,6 +1,9 @@
 * 平行宇宙
 https://youtu.be/K4sA4Itrca0?t=530
 
+** parallel rabit
+https://blog.kitware.com/imstk-2-0-released/
+
 ** 视角
 
 https://youtu.be/ovJcsL7vyrk?t=830
