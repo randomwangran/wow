@@ -15,7 +15,7 @@ https://youtu.be/9chBPCKZluQ?t=230
 
 
 * 头发
-https://youtu.be/9chBPCKZluQ?t=230
+https://youtu.be/IrdYueB9pY4?t=380
 
 
 list
