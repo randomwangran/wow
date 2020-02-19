@@ -1,6 +1,10 @@
 * 平行宇宙
 https://youtu.be/K4sA4Itrca0?t=530
 
+** 视角
+
+https://youtu.be/ovJcsL7vyrk?t=830
+
 * wow
 https://youtu.be/K4sA4Itrca0?t=363
 
