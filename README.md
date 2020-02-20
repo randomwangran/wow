@@ -26,6 +26,10 @@ https://youtu.be/EVbdbVhzcM4
 ** I think today might be the day
 https://youtu.be/EVbdbVhzcM4?t=269
 
+** it's not about fluid dynamic, it's about the patient and presience?
+https://youtu.be/EVbdbVhzcM4?t=326
+
+I remeber that Feynman said this as well. If someone creat something interesting, it does matter.
 
 * 头发
 https://youtu.be/IrdYueB9pY4?t=380
