@@ -36,6 +36,7 @@ https://youtu.be/EVbdbVhzcM4?t=339
 
 ** 連跌倒的傷 傷口也要是 你努力過的模樣
 https://youtu.be/EVbdbVhzcM4?t=361
+https://www.youtube.com/watch?v=I4FCjlM9lhI
 
 
 * 头发
