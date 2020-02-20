@@ -20,6 +20,8 @@ https://youtu.be/LLIIYtnDups?list=PLigZQCghm_vwgVIczkOfbnHVWTeduOrwJ&t=66
 * mesh
 https://youtu.be/9chBPCKZluQ?t=230
 
+* 碰撞
+https://youtu.be/EVbdbVhzcM4
 
 * 头发
 https://youtu.be/IrdYueB9pY4?t=380
