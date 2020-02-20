@@ -34,6 +34,10 @@ I remeber that Feynman said this as well. If someone creat something interesting
 ** 每一次失败，我都学到一些东西。你所要做的，就是把水缸再次灌满。
 https://youtu.be/EVbdbVhzcM4?t=339
 
+** 連跌倒的傷 傷口也要是 你努力過的模樣
+https://youtu.be/EVbdbVhzcM4?t=361
+
+
 * 头发
 https://youtu.be/IrdYueB9pY4?t=380
 
