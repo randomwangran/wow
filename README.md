@@ -31,6 +31,9 @@ https://youtu.be/EVbdbVhzcM4?t=326
 
 I remeber that Feynman said this as well. If someone creat something interesting, it does matter.
 
+** 每一次失败，我都学到一些东西。你所要做的，就是把水缸再次灌满。
+https://youtu.be/EVbdbVhzcM4?t=339
+
 * 头发
 https://youtu.be/IrdYueB9pY4?t=380
 
