@@ -5,7 +5,6 @@ https://youtu.be/K4sA4Itrca0?t=530
 https://blog.kitware.com/imstk-2-0-released/
 
 ** 视角
-
 https://youtu.be/ovJcsL7vyrk?t=830
 
 * wow
@@ -22,6 +21,9 @@ https://youtu.be/Q3oItpVa9fs?t=217
 
 * 二次火
 https://youtu.be/Q3oItpVa9fs?t=254
+
+* Chladni Plate
+https://nigelstanford.com/Cymatics/Chladni_Plate
 
 * 小提琴
 https://youtu.be/Cl-420GxOTs?t=172
